@@ -1,0 +1,1 @@
+# Flipper-IRDB-Cable_Boxes-Atlas-Atlas_URC1056.ir
